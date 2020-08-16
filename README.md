@@ -1,3 +1,3 @@
 # courceraclass
 
-imma learn this hsti
+https://delwinmachan.github.io/courceraclass/
